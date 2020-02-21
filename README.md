@@ -1,4 +1,4 @@
-# VIP SHARE 、VIP账号分享
+# SVIP账号分享 VIP SHARE
 
 每日分享各大SVIP会员账号,如对你有帮助,请给个Star支持一下哦。
 
