@@ -8,6 +8,8 @@
 
 ##### 2.21 更新.  [更多账号](https://goyoka.com/wangpan)
 
+- [x] 账号:15758252828 密码:byYL0115
+
 - [x] 账号:16532633925 密码:mianfeivip.com8
 
 - [x] 账号:16532966433 密码:mianfeivip.comd
@@ -17,3 +19,25 @@
 - [x] 账号:15934502834 密码:uuuu3333
 
 - [x] 账号:13650789562 密码:wwdwwd
+
+### 迅雷白金会员
+
+##### 2.21 更新. 
+
+- [x] 账号：mhvhkq94hw 密码 jvzjlhlz
+
+- [x] 账号：pxdazchub 密码 yuywwyyy
+
+- [x] 账号：xmw73wuwr5 密码 suissgis
+
+- [x] 账号：bitunji470347 密码 sgy4366
+
+- [x] 账号：pafang89450 密码 sgy4366
+
+### 优酷会员
+
+##### 2.21 更新.
+
+- [x] 账号：kwkg36@163.com 密码 yy755927
+
+- [x] 账号：cnehln@163.com 密码 yy432312
