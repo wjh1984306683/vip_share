@@ -8,12 +8,12 @@
 
 ##### 2.21更新 [更多账号](https://goyoka.com/wangpan)
 
--[x] 账号:16532633925 密码:mianfeivip.com8
+- [x] 账号:16532633925 密码:mianfeivip.com8
 
--[x] 账号:16532966433 密码:mianfeivip.comd
+- [x] 账号:16532966433 密码:mianfeivip.comd
 
--[x] 账号:17111004221 账号:mianfeivip.com4
+- [x] 账号:17111004221 账号:mianfeivip.com4
 
--[x] 账号:15934502834 密码:uuuu3333
+- [x] 账号:15934502834 密码:uuuu3333
 
--[x] 账号:13650789562 密码:wwdwwd
+- [x] 账号:13650789562 密码:wwdwwd
