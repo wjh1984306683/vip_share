@@ -6,7 +6,7 @@
 
 > 注意：请选择第三方登录 -> 使用微博授权登录
 
-##### 2.21更新 [更多账号](https://goyoka.com/wangpan)
+##### 2.21 更新.  [更多账号](https://goyoka.com/wangpan){:target="_blank"}
 
 - [x] 账号:16532633925 密码:mianfeivip.com8
 
