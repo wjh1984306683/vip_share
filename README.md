@@ -34,6 +34,12 @@
 
 ### 迅雷白金会员
 
+##### 2.23 更新.
+
+- [x] 账号 qi22apdmp7 密码 vlppbjtj
+
+- [x] 账号 sojcapkd23 密码 ntrjvvvl
+
 ##### 2.22 更新.
 
 - [x] 账号 asnznupcx 密码 eic003860
